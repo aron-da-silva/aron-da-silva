@@ -4,6 +4,8 @@
 
 ⚽🏐 Faço Futsal e Volêi
 
-💻 Gosto de jogar jogos no pc,como, CS2 e GTA RP
+💻 Gosto de jogar jogos no pc: CS2 e GTA RP
+
+📱Insta: aron.ntj
 
 👀 Fato curioso:Fiquei em primeiro na primeira etapa do Hellow

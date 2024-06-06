@@ -1,6 +1,4 @@
-<<<<<<< HEAD
-# hellow_database
-=======
+
 👋 Oi, sou o Aron, tenho 13 anos, estudo no Machado de Assis, estou no oitavo ano.
 
 🥋 Já fiz Karatê, atualmente faço Jiu-Jitsu

@@ -8,6 +8,4 @@
 💻 Gosto de jogar jogos no pc: Valorant e God of War
 
 📱Insta: aron.ntj
-
-👀 Fato curioso: Fiquei em primeiro na primeira etapa do Hellow
 >>>>>>> 12e6910dd44708d192274b48995cf62b502df687
